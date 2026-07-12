@@ -5,7 +5,7 @@
 
 dm me if u want updated venti08937
 
-credit:primay,jett,vxcn,me,bitey :)
+credit:primay,jett,vxcn,me,bitey,lunar :)
 
 
 if ur a lazy fuck (i understand)

@@ -17,3 +17,5 @@ if ur a lazy fuck (i understand)
 
 # Erbadih
 - Check the files :)
+
+- cba uploading source, dm me if u dont trust the dll :)
